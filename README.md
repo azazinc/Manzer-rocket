@@ -13,6 +13,7 @@ https://prnt.sc/26h164e
 https://prnt.sc/26h16ba
 https://prnt.sc/26h16hi
 https://prnt.sc/26h16p8
+https://prnt.sc/26h1jqb
 ]
 
 Manzer:
