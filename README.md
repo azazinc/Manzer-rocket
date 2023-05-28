@@ -26,6 +26,3 @@ https://prnt.sc/26h17jm
 https://prnt.sc/26h17q1
 https://prnt.sc/26h180x
 ]
-
-Причина докса: Продажные псы
-Докс by azazinc & fernand
